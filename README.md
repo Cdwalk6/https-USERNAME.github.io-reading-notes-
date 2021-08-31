@@ -1,2 +1,2 @@
-# https-USERNAME.github.io-reading-notes-
+# https-CDWALK6.github.io-reading-notes-
 My journal
