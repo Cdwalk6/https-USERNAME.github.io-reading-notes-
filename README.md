@@ -10,3 +10,4 @@ I no longer fear failiure. As Franklin D Roosevelt said:
 >The only thing to fear is
 >fear itself
 
+![Franklin D Roosevelt](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.amazon.com%2FFranklin-Roosevelt-13x19-Poster-itself%2Fdp%2FB01MRNNU09&psig=AOvVaw0LD8yc1LqXBbGVpcpggTB-&ust=1630540822196000&source=images&cd=vfe&ved=2ahUKEwjTnqGFvNzyAhUML6wKHVenCFEQr4kDegUIARCyAQ)
